@@ -1,1 +1,0 @@
-# tugas-rutin-1
